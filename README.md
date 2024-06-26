@@ -17,8 +17,8 @@
 
 - 7座 7楼 e [视频链接](https://drive.google.com/file/d/1bRBMuYTL4l8i-yZqaITEd7BfYI601cnl/view?usp=drive_link)：无家具，vince哥说用来给我们看户型，和下面的相同户型；
 
-- :star: **9座 19楼 e** [视频链接](https://drive.google.com/file/d/1WUPcdSagxeWWJZeFAaX75XYQ4xvPsxa1/view?usp=drive_link)：精装修，有沙发有电视，次卧有固定床，主卧有135床，价格贵d，19500，租客说主卧空调不够劲，需要再修一下；
+- :star: **9座 19楼 e** [视频链接](https://drive.google.com/file/d/1WUPcdSagxeWWJZeFAaX75XYQ4xvPsxa1/view?usp=drive_link)：精装修，有沙发有电视，次卧有固定床，主卧有135床，价格贵d，19500，租客说主卧空调不够劲，需要再修一下；但是他们租期到六月底，vince哥说八月一号估计等不到，这个房子很多人看过，估计会很快出手；
 
 ### 海日湾
 
-- b2座 17楼 e [视频链接](https://drive.google.com/file/d/1NN6UbHjr9Q38_sAmsOzQemSVyOXCHXg1/view?usp=drive_link)：顶楼，房间挑高很高，但是三学生合租，遗留大量学生用家具，不太适合我们。18500好像是；
+- b2座 17楼 e [视频链接](https://drive.google.com/file/d/1NN6UbHjr9Q38_sAmsOzQemSVyOXCHXg1/view?usp=drive_link)：顶楼，房间挑高很高，但是三学生合租，遗留大量学生用家具，不太适合我们。18500好像是；他们租期到七月底，
