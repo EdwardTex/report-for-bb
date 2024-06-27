@@ -1,5 +1,17 @@
 # report-for-bb
 
+### 好运中心
+
+- :star:桂林阁 3楼 e [视频链接](https://drive.google.com/file/d/1Sa4JxT7uRYN8uqYK9AJXPwQpyOqVXySD/view?usp=drive_link)：装修最靓，全沙田最贵（19500），无沙发电视，无烘干机，唯一优点一米八大床，次卧有固定床，可能不愿意等到八月一日起租，就起租时间中介正在与房东沟通；
+
+### 伟华中心
+
+- 1座 5楼 f [视频链接](https://drive.google.com/file/d/1aaGETlT3_uIZwwrxJgZdAfVD8TXT5pSL/view?usp=drive_link)：一对情侣住，无沙发电视，无洗衣机，脏乱差，一个月还要一万五，离谱；
+
+- 3座 28楼 b [视频链接](https://drive.google.com/file/d/1q15fzN0uoUSOQART6udJ44O_4gSY7sbI/view?usp=drive_link)：三个学生住，完全无家具家电（均学生自购），脏乱差；
+
+- :star:3座 15楼 b [图片链接](https://drive.google.com/drive/folders/1ls_0C4-8GdhA99rBpu_6S-rH2TyKXm9T?usp=drive_link)：租客不在，无法看房，但装修靓d，价格好像是一万八左右；家具看起来比较齐，目测唯一一个带烘干机的（好像），缺点是两张单人床（目测）；
+
 ### 云汇
 挂牌价格在17800-18500
 
